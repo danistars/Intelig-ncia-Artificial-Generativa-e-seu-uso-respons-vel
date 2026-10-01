@@ -1,0 +1,1 @@
+# Intelig-ncia-Artificial-Generativa-e-seu-uso-respons-vel
